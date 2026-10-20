@@ -1,0 +1,2 @@
+# premium-soldering-jewel-001-jewelry-soldering-temperature
+Tired of ruining delicate jewelry pieces because you guessed the wrong soldering temperature? Stop second-guessing and start soldering with precision using the Jewelry Soldering Temperature Guide — the only Notion template that turns messy notes and forgotten charts into a living, searchable database you can access from your phone at the bench.  Th
